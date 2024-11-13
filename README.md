@@ -1,3 +1,4 @@
 # Hello everyone!!!
+# Not Stupid code
 
-This is coming from Bogdan.
+I AM NOT STUPIDDD!!!! MKAY???
